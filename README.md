@@ -27,3 +27,4 @@
 | ![](https://avatars.steamstatic.com/88fd54ce547f49c157795435323dbb7cd1d55b84.jpg) | 鳶一折紙      | [76561199736043819](https://steamcommunity.com/profiles/76561199736043819/) | ✅           | 2025-12-19 11:29:34 |                |          |
 | ![](https://avatars.steamstatic.com/565da40e8e718a857fd0013755b2eea8e40f4a4b.jpg) | anxiety   | [76561199237286856](https://steamcommunity.com/profiles/76561199237286856/) | ✅           | 2025-12-20 04:50:55 |                |          |
 | ![](https://avatars.steamstatic.com/f48d0711ce228462c670087a4500e8ce791713d8.jpg) | 线上考试越查水越多 | [76561198975551867](https://steamcommunity.com/profiles/76561198975551867/) | ✅           | 2025-12-20 08:54:08 |                |          |
+| ![](https://avatars.steamstatic.com/41664c211fda6d3209c11955c1c918bc397a318e.jpg) | KAHO      | [76561198862404122](https://steamcommunity.com/profiles/76561198862404122/) | ✅           | 2025-12-23 02:43:54 |                |          |
