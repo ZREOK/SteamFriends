@@ -31,3 +31,4 @@
 | ![](https://avatars.steamstatic.com/4941222dd3ea8c7447f6f5be6370a96a7e246d66.jpg) | 已经没有什么好害怕的 | [76561199761170970](https://steamcommunity.com/profiles/76561199761170970/) | ✅           | 2026-01-03 05:06:55 |                |          |
 | ![](https://avatars.steamstatic.com/08afbfcd4161cd9250d8dec9ff80de3bc62eacb3.jpg) | dili嘀哩猫    | [76561198377701683](https://steamcommunity.com/profiles/76561198377701683/) | ✅           | 2026-01-10 14:09:08 |                |          |
 | ![](https://avatars.steamstatic.com/ca3aca2cf48d572effd85d622eae46cc8ccb0e4f.jpg) | 终焉の凤梨人     | [76561199212009968](https://steamcommunity.com/profiles/76561199212009968/) | ✅           | 2026-01-10 06:45:02 |                |          |
+| ![](https://avatars.steamstatic.com/7f9ca6f49e6c5c332328ed404b8e6ad821753b2b.jpg) | 󠀡󠀡         | [76561198390202173](https://steamcommunity.com/profiles/76561198390202173/) | ✅           | 2026-01-12 11:07:53 |                |          |
