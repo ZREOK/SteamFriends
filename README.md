@@ -32,3 +32,4 @@
 | ![](https://avatars.steamstatic.com/08afbfcd4161cd9250d8dec9ff80de3bc62eacb3.jpg) | dili嘀哩猫    | [76561198377701683](https://steamcommunity.com/profiles/76561198377701683/) | ✅           | 2026-01-10 14:09:08 |                |          |
 | ![](https://avatars.steamstatic.com/ca3aca2cf48d572effd85d622eae46cc8ccb0e4f.jpg) | 终焉の凤梨人     | [76561199212009968](https://steamcommunity.com/profiles/76561199212009968/) | ✅           | 2026-01-10 06:45:02 |                |          |
 | ![](https://avatars.steamstatic.com/7f9ca6f49e6c5c332328ed404b8e6ad821753b2b.jpg) | 󠀡󠀡         | [76561198390202173](https://steamcommunity.com/profiles/76561198390202173/) | ✅           | 2026-01-12 11:07:53 |                |          |
+| ![](https://avatars.steamstatic.com/abda64e13545be34610123b18b09892ec746ccec.jpg) | СТОЛ       | [76561199271770724](https://steamcommunity.com/profiles/76561199271770724/) | ✅           | 2026-01-13 13:18:08 |                |          |
